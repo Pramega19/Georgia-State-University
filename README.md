@@ -1,4 +1,0 @@
-Georgia-State-University
-========================
-
-GSU
